@@ -1,9 +1,13 @@
-Moooooooo
-Mooooooo
-Moooooo
-Mooooo
-Moooo
-Mooo
-Moo
-Mo
-Moo
+
+  (o)    (o)
+
+(______!______)
+MoooooooooooooM
+ MoooooooooooM
+  MoooooooooM
+   MoooooooM
+    MoooooM
+     MoooM
+      MoM
+       M
+
