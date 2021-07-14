@@ -11,12 +11,12 @@
   (o)    (o)
 
 (______!______)
-MoooooooooooooM
- MoooooooooooM
-  MoooooooooM
-   MoooooooM
-    MoooooM
-     MoooM
-      MoM
-       M
 
+wwwwwwwwwwwwwww
+ wwwwwwwwwwwww
+  wwwwwwwwwww
+   wwwwwwwww
+    wwwwwww
+     wwwww
+      www
+       w
